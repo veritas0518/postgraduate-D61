@@ -1,0 +1,2 @@
+# postgraduate-D61
+Today is another ordinary day. I feel that I don't have the motivation to study as soon as I get home. I only want to study very much in the company or in the library. Hey, I'm really tired. Why will there be so many troubles in the society? I really miss my childhood. Today I saw a classmate I hate in high school who said he wanted to publish a paper, I'm so impressed. What's there to show off
